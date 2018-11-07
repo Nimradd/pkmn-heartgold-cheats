@@ -1,4 +1,4 @@
-Heart Gold USA (NTR-IPKE-USA) retroarch cheats
+Pokémon HeartGold USA (NTR-IPKE-USA) retroarch cheats
 ===
 
 These cheats were used in my playthrough with the following self-dumped cartridge ROM:
